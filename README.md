@@ -27,7 +27,16 @@
 
 ![image](https://github.com/Iltsd/pics/assets/144996957/fbca79e8-c667-4cb1-809a-6caf4d0491e6)
 
+![image](https://github.com/Iltsd/pics/assets/144996957/29491070-34b2-44fd-acf8-0643fa417705)
 
+![image](https://github.com/Iltsd/pics/assets/144996957/26d6473d-c4c7-4dff-93f9-76f09b5144f1)
 
+![image](https://github.com/Iltsd/pics/assets/144996957/1bd06ee9-b65f-40e8-a758-363c7fc4d70c)
+
+![image](https://github.com/Iltsd/pics/assets/144996957/707def4e-3452-4909-814d-55c0c003e6fd)
+'
+![image](https://github.com/Iltsd/pics/assets/144996957/027a6950-7a76-42e6-9af0-a384fe1711de)
+
+![image](https://github.com/Iltsd/pics/assets/144996957/d923e8f0-b4a0-43a9-9d68-2be56d0d36ab)
 
 
